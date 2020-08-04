@@ -1,4 +1,9 @@
+# Video
+
 ## Videoclips with 3D avatars (non-digital beings)
+
+The videoclips below show some examples of non-digital beings being used.
+
 ### Jul 2020
 - [Juice WRLD - Wishing Well](https://www.youtube.com/watch?v=C5i-UnuUKUI)
 - [Deejay Telio - Camarim](https://www.youtube.com/watch?v=MeKq2n8hsgg)
