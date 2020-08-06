@@ -7,4 +7,5 @@ I am also looking for kind people that help me go through this research.
 
 ### Table of contents
 
-1. [Multimedia](multimedia.md)
+1. [Introduction](intro.md)
+2. [Multimedia](multimedia.md)
