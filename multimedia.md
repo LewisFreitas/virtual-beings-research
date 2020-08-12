@@ -4,6 +4,9 @@
 
 The videoclips below show some examples of non-digital beings being used.
 
+### Aug 2020
+- [Juice WRLD & The Weeknd - Smile](https://www.youtube.com/watch?v=2avPJ9TZNmU) 
+
 ### Jul 2020
 - [Juice WRLD - Wishing Well](https://www.youtube.com/watch?v=C5i-UnuUKUI)
 - [Deejay Telio - Camarim](https://www.youtube.com/watch?v=MeKq2n8hsgg)
